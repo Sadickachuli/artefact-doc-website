@@ -1,1 +1,1 @@
-Empowering Young Women for Change. Join us in amplifying voices, fostering leadership, and creating impact. Explore, engage, and be part of the movement. Together, let's KuzaDada.
+Empowering Young Women for Change. Join us in amplifying voices, fostering leadership, and creating impact. Explore, engage, and be part of the movement. Together, let's KuzaDada.![kuza](https://github.com/user-attachments/assets/bd8f59b2-2551-4086-802f-da5df8ea3d2e)
